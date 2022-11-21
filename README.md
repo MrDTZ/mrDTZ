@@ -13,20 +13,20 @@
 ## 🪀W⃢ELCOME⃤TO ⃝DTZ FAMILY⃢🪀
 
 
-- *📍DARK TOOL ZONE [01]📍*
+- _📍DARK TOOL ZONE [01]📍_
 
 - https://chat.whatsapp.com/GkdOZlqRgZPHtDL9N7Ckn7
 
-- *📍DARK TOOL ZONE [02]📍*
+- _📍DARK TOOL ZONE [02]📍_
 
 - https://chat.whatsapp.com/LBFeUtwuRleArUQGtr6cnf
 
-- *📍DARK TOOL ZONE [03]📍*
+- _📍DARK TOOL ZONE [03]📍_
 
 - https://chat.whatsapp.com/D2FM11zxWnvEU1qHwwv2f4
 
-- *🐉 Our Telegram Chanal 🐉*
+- _🐉 Our Telegram Chanal 🐉_
 
 - https://t.me/Etical_Hacking_official
 
-- *🙋‍♂️ Have a Nice Day ! *
+- _🙋‍♂️ Have a Nice Day !_
