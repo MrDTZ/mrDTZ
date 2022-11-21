@@ -10,7 +10,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-## 🪀W⃢ELCOME⃤TO ⃝DTZ FAMILY⃢🪀
+## 🪀W⃢ELCOME⃤ TO THE ⃝DTZ FAMILY⃢🪀
 
 
 - *_📍DARK TOOL ZONE [01]📍_*
