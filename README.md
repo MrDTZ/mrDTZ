@@ -21,6 +21,7 @@
 
 ## 🪀W⃢ELCOME⃤ TO THE DTZ FAMILY⃢🪀
 
+<img src= "https://github.com/MrDTZ/mrDTZ/blob/main/welcome-colorful-text.gif" width="125" height="100" />
 
 - *_📍DARK TOOL ZONE [01]📍_*
 
@@ -35,6 +36,8 @@
 - https://chat.whatsapp.com/D2FM11zxWnvEU1qHwwv2f4
 
 - *_🐉 Our Telegram Chanal 🐉_*
+
+<img src= "https://github.com/MrDTZ/mrDTZ/blob/main/telegram.gif" width="50" height="50" />
 
 - https://t.me/Etical_Hacking_official
 
