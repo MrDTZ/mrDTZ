@@ -2,7 +2,9 @@
 
 
 ![WhatsApp Image 2022-11-22 at 04](https://user-images.githubusercontent.com/118705843/203276722-a75b0e01-d202-4b28-819d-cf3f2bfd18ee.jpg)
-<gif src="https://user-images.githubusercontent.com/118705843/203490819-3bd4f495-2b02-433c-a7ba-91f52c56adbf.gif" width="250" height="250" />
+<img src="https://github.com/MrDTZ/mrDTZ/blob/main/loading-buffering.gif" width="200" height="400" />
+
+
 
  ![loading-buffering](https://user-images.githubusercontent.com/118705843/203490819-3bd4f495-2b02-433c-a7ba-91f52c56adbf.gif)
 - 🔭 I’m currently working on Student... 
