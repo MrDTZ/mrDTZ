@@ -2,7 +2,7 @@
 
 
 ![WhatsApp Image 2022-11-22 at 04](https://user-images.githubusercontent.com/118705843/203276722-a75b0e01-d202-4b28-819d-cf3f2bfd18ee.jpg)
- 
+ https://i.gifer.com/fxac.gif
  
 - 🔭 I’m currently working on Student... 
 - 🌱 I’m currently learning C++...
