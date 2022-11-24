@@ -19,10 +19,10 @@
   </p>
 
 
- *_🐉 Join Our Telegram Chanal 🐉_*
+ <img src= "https://github.com/MrDTZ/mrDTZ/blob/main/telegram.gif" width="25" height="25" />[🐉 Join Our Telegram Chanal 🐉](https://t.me/Etical_Hacking_official)
 
-<img src= "https://github.com/MrDTZ/mrDTZ/blob/main/telegram.gif" width="50" height="50" />
 
-- https://t.me/Etical_Hacking_official
+
+
 
 - *_🙋‍♂️ Have a Nice Day !_*
