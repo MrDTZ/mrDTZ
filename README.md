@@ -22,7 +22,7 @@
  <img src= "https://github.com/MrDTZ/mrDTZ/blob/main/telegram.gif" width="25" height="25" />[🐉 Join Our Telegram Chanal 🐉](https://t.me/Etical_Hacking_official)
 
 
--Our New Web site is comming soon...!
+- Our New Web site is comming soon...!
 
 
 - *_🙋‍♂️ Have a Nice Day !_*
